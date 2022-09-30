@@ -12,7 +12,8 @@ literally anything and everything that I can think about myself rn
 
 ### Music taste
 - Kanye West
-- The Weeknd ![This is an image])(https://www.pinterest.com/pin/844354630154854809/?nic_v3=1a4n90hk4)
+- The Weeknd 
+- ![This is an image])(https://www.pinterest.com/pin/844354630154854809/?nic_v3=1a4n90hk4)
 - Blxst
 - Tyler, The Creator
 - Brent Faiyaz
