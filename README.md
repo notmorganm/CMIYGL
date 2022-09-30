@@ -2,6 +2,7 @@
 literally anything and everything that I can think about myself rn
 ## **background information**
 - My full name is Morgan Kanato Marks
+- Birthday : August 24, 2007
 - Ethnicity : African-American and Japanese
 - Height : 5'8"
 - Weight : 137.4 lbs
