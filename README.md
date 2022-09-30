@@ -8,5 +8,20 @@ literally anything and everything that I can think about myself rn
 - Occupation : Student-Athlete/Part-time Reseller
 - Hobbies : basketball, music, videogames, fashion, sleeping
 - dislikes : presentations, insects, homework
+!(https://cdn.discordapp.com/attachments/930620115886673990/1025231713946832907/F965EE62-9783-47B9-B063-1536ADDC6FDF.jpg)
 
 ### Music taste
+- Kanye West
+- The Weeknd
+- Blxst
+- Tyler, The Creator
+- Brent Faiyaz
+- Twice, Blackpink, LE SSERAFIM
+- Steve Lacy
+- Grent Perez
+- Yeat
+- Pink Pantheress
+- Juice Wrld
+- Travis Scoot
+- Drake
+- Pop Smoke
