@@ -13,7 +13,8 @@ literally anything and everything that I can think about myself rn
 
 ## SUMMER
 This summer was super fun, here's some of my favorite moments...
-1. 
+1. Bonfire 
+![This is an image](https://cdn.discordapp.com/attachments/930620115886673990/1025241880658710578/C77670DB-9A2C-40F6-9256-9B5C23CA9ACC.jpg)
 
 ### Music taste
 ![This is an image](https://cdn.discordapp.com/attachments/930620115886673990/1025236030661603338/unknown.png)
