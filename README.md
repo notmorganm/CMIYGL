@@ -18,6 +18,7 @@ This summer was super fun, here's some of my favorite moments...
 
 ### Music taste
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025236030661603338/unknown.png">
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025241880658710578/C77670DB-9A2C-40F6-9256-9B5C23CA9ACC.jpg">
 - Kanye West
 - The Weeknd 
 - Tyler, The Creator
