@@ -28,6 +28,20 @@ This summer was super fun, here's some of my favorite moments...
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025242661659099148/1CE1E392-65A2-48F6-93B1-08661632CFBF.jpg">
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025242744899244122/4A5C25ED-E31F-43C6-BFAB-E1C587FD8306.jpg">
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025244155691143199/47BF72A0-3E1E-43F4-98B5-104F674027EC.jpg">
+6.**OC Fair**
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025245160809963550/5A77258D-9ED3-4AE3-A68E-2621025C42E6.jpg">
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025245243907506217/D9C95BD0-5E7B-45BA-86BA-4BEBCF90A324.jpg">
+7. **Denny's**
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246006310350929/29CCD65C-5F8F-4BCB-BBE3-927BF5BE4E9E.jpg">
+8.**San Jose/San Francisco**
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246127794171935/AB42D503-B3DC-4869-9357-87DD6A2DE0C9.jpg">
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246156315426856/1EEAC7FB-4EE7-4176-9BC8-44849DA21866.jpg">
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246267082821732/E7DB0710-3150-4B4D-B07A-79268DAAC0FB.jpg">
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246390114332763/16841AB2-238B-44AA-A361-85E56FADBB9F.jpg">
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246446557081711/83E24A55-6839-4180-8F3D-A71CAD3E75A9.jpg">
+9.**Santa Monica**
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246554904350731/69FF225C-41B4-4F57-91EF-0B462365EDAE.jpg">
+
 
 ### Music taste
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025236030661603338/unknown.png">
