@@ -12,7 +12,8 @@ literally anything and everything that I can think about myself rn
 
 ## SUMMER
 This summer was super fun, here's some of my favorite moments...
-1.
+1. 
+
 ### Music taste
 ![This is an image](https://cdn.discordapp.com/attachments/930620115886673990/1025236030661603338/unknown.png)
 - Kanye West
