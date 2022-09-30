@@ -13,7 +13,7 @@ literally anything and everything that I can think about myself rn
 ### Music taste
 - Kanye West
 - The Weeknd 
-![This is an image](https://www.pinterest.com/pin/844354630154854809/?nic_v3=1a4n90hk4)
+![This is an image]([https://www.pinterest.com/pin/844354630154854809/?nic_v3=1a4n90hk4](https://www.google.com/url?sa=i&url=https%3A%2F%2Fopen.spotify.com%2Falbum%2F2nLOHgzXzwFEpl62zAgCEC&psig=AOvVaw0HlLFzEaHQaGoUgEw6G0vf&ust=1664591930650000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCMin1Kq-u_oCFQAAAAAdAAAAABAl))
 - Blxst
 - Tyler, The Creator
 - Brent Faiyaz
@@ -23,6 +23,8 @@ literally anything and everything that I can think about myself rn
 - Yeat
 - Pink Pantheress
 - Juice Wrld
-- Travis Scoot
+- Travis Scott
 - Drake
 - Pop Smoke
+
+###
