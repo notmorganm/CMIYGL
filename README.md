@@ -43,11 +43,7 @@ This summer was super fun, here's some of my favorite moments...
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025245243907506217/D9C95BD0-5E7B-45BA-86BA-4BEBCF90A324.jpg">
 
 
-7. **Denny's**
-<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246006310350929/29CCD65C-5F8F-4BCB-BBE3-927BF5BE4E9E.jpg">
-
-
-8.**San Jose/San Francisco**
+7.**San Jose/San Francisco**
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246127794171935/AB42D503-B3DC-4869-9357-87DD6A2DE0C9.jpg">
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246156315426856/1EEAC7FB-4EE7-4176-9BC8-44849DA21866.jpg">
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246267082821732/E7DB0710-3150-4B4D-B07A-79268DAAC0FB.jpg">
@@ -55,7 +51,7 @@ This summer was super fun, here's some of my favorite moments...
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246446557081711/83E24A55-6839-4180-8F3D-A71CAD3E75A9.jpg">
 
 
-9.**Santa Monica**
+8.**Santa Monica**
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246554904350731/69FF225C-41B4-4F57-91EF-0B462365EDAE.jpg">
 
 
