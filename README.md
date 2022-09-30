@@ -1,4 +1,4 @@
-# about me!                                                        by: Morgan Marks
+# NPC Life                                                    by: Morgan Marks
 literally anything and everything that I can think about myself rn
 ## **background information**
 - My full name is Morgan Kanato Marks
@@ -12,7 +12,7 @@ literally anything and everything that I can think about myself rn
 
 
 
-### Music taste
+### Music interessts
 <img src="https://s1.ticketm.net/dam/a/e2e/21b0b2b3-f2b6-4ad4-88a7-6d1546b3de2e_1627271_TABLET_LANDSCAPE_LARGE_16_9.jpg" jsaction="load:XAeZkd;" jsname="HiaYvf" class="n3VNCb KAlRDb" alt="The Weeknd Tickets, 2022 Concert Tour Dates | Ticketmaster" data-noaft="1" style="width: 433px; height: 243.562px; margin: 14.2687px 0px;">
 - Kanye West
 - The Weeknd 
@@ -27,5 +27,6 @@ literally anything and everything that I can think about myself rn
 - Travis Scott
 - Drake
 - Pop Smoke
+<img src="https://i.ytimg.com/vi/ykMHDKB0-1o/maxresdefault.jpg" jsaction="load:XAeZkd;" jsname="HiaYvf" class="n3VNCb KAlRDb" alt="Is Travis Scott's &quot;Astroworld&quot; the Birth of an Icon? - Northern  Transmissions" data-noaft="1" style="width: 433px; height: 243.562px; margin: 14.2687px 0px;">
 
 ###
