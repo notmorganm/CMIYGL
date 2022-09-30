@@ -24,6 +24,10 @@ This summer was super fun, here's some of my favorite moments...
 4.**4th of July**
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025242499926740992/1222FD40-522A-45F5-9D04-75CBFD59E5A7.jpg">
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025242555543203870/13A939C3-E75E-4F67-8DEE-38EDEBCAF2EC.jpg">
+5.**Pool party**
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025242661659099148/1CE1E392-65A2-48F6-93B1-08661632CFBF.jpg">
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025242744899244122/4A5C25ED-E31F-43C6-BFAB-E1C587FD8306.jpg">
+<img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025244155691143199/47BF72A0-3E1E-43F4-98B5-104F674027EC.jpg">
 
 ### Music taste
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025236030661603338/unknown.png">
