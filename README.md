@@ -53,8 +53,6 @@ This summer was super fun, here's some of my favorite moments...
 
 8. **Santa Monica**
 <img src ="https://cdn.discordapp.com/attachments/930620115886673990/1025246554904350731/69FF225C-41B4-4F57-91EF-0B462365EDAE.jpg">
-<img src ="https://user-images.githubusercontent.com/16319829/81180309-2b51f000-8fee-11ea-8a78-ddfe8c3412a7.png">
-
 
 
 ### Music taste
